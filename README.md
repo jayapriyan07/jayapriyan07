@@ -68,7 +68,7 @@ I enjoy building software that solves real-world problems, from Java application
 
 ## 📫 Connect
 
-- GitHub: https://github.com/jayapriyan07
+-Email: k.jp6002@gmail.com
 
 ---
 
